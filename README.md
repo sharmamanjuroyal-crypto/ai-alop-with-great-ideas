@@ -1,1 +1,1 @@
-# ai-alop-with-great-ideas
+posting my ai ideas that i  created 
